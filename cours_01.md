@@ -18,6 +18,6 @@ Bonjour, je me nomme **Victor Gileau**. Ce qui m'interesse dans TIM est l'illust
 * J'ai déja fait quelque cours en multimédia qui on été certain de mes meilleurs cours.
 * De plus, le cégep Montmorency est acessible très facilement avec le transport en commun.
 
-Le cours qui me motive le plus cette session si serais atelier d'illustration numérique vue que ma passion est le dessin c'est un cours que j'attedait avec impassience. Je n'ai pas de métier en tête encore avec la formation.
+Le cours qui me motive le plus cette session si serais atelier d'illustration numérique vue que ma passion est le dessin c'est un cours que j'attedait avec impassience. Je n'ai pas de métier en tête encore avec la formation. Mais, j'aimerair utilliser mes talent en dessin dans mon futur travail.
 
 
