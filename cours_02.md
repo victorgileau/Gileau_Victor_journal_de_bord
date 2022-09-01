@@ -20,13 +20,15 @@ Mon film d'animation préférer ayant de la musique, de l'animation 2d et 3d et 
 
 ### [Chaine youtube : Lord Bung](https://www.youtube.com/c/lordbung)
 
-C'est un chaine avec des animations 2d montrants des histoirs, et même parfoits des vidéos de musiques. Montrant des personnages interesant, histroire intrigante et animation de qualiter.
+C'est un chaine avec des animations 2d montrants des histoires, et même parfoits des vidéos de musiques. Montrant des personnages interesant, histroire intrigante et animation de qualiter.
 
 
 ### [Chaine youtube : Dead Sound](https://www.youtube.com/c/DeadSound)
 
 Une chaine youtube avec des animation 3d et 2d ensemble. Avec des histoires post apocalyptique, éducative (dinosaure) et autres. Créant des ambiance interessant me captivant a chaque écoute, avec des vidéos montrant le making off de ces projets.
 
-### Lien 5 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [Corridor Digital](https://www.corridordigital.com/)
+
+C'est un entreprise qui on commencer avec un chaine youtube ou il post des vidéos avec des effets visuels ou plus présisément des courts métrage en grand majoriter. Il font souvent des vidéos sur le fonctionnement. Il on créé un site web pour que le contenu puis continuer d'être poster si Youtube ne fonctionne plus. C'est un groupe d'artiste, producteur et autres qui créé du contenu.
+
 
