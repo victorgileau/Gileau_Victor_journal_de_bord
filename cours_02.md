@@ -10,13 +10,11 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 
 ## Mes liens
 
-### Lien 1
-[Farcry 6](https://www.ubisoft.com/fr-ca/game/far-cry/far-cry-6)
+### [Farcry 6](https://www.ubisoft.com/fr-ca/game/far-cry/far-cry-6)
 
 J'aime bien les Far cry en général, mais Far cry 6 est est le jeu de la séries qui a les plus beau visuels. Ce déroulant dans un cuba fictife, ou ce trouve des coucher de soliel magnifique, des forêts vivantes et une campagne interesantes. Avec un mode photo proposant des millions de possibiliter et un gameplay adictif. Un bonne adition a la séris de jeu Far cry. (pas la meilleur) 
 
-### Lien 2
-[Spider-Man : into the spider-verse](https://www.youtube.com/watch?v=tg52up16eq0)
+### [Spider-Man : into the spider-verse](https://www.youtube.com/watch?v=tg52up16eq0)
 
 
 Expliquer pourquoi vous avez choisi ce lien.
