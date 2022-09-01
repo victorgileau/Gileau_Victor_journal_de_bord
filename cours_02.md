@@ -16,7 +16,7 @@ J'aime bien les Far cry en général, mais Far cry 6 est est le jeu de la série
 
 ### [Spider-Man : into the spider-verse](https://www.youtube.com/watch?v=tg52up16eq0)
 
-
+Mon film d'animation préférer ayant de la musique, de l'animation 2d et 3d et une histoire captivante. Le style du film ce démarquant des autres qui apporte les comics dans le films, créant une toute nouvelle facont de présenter un film.+
 
 ### [Chaine youtube : Lord Bung](https://www.youtube.com/c/lordbung)
 
