@@ -17,13 +17,15 @@ J'aime bien les Far cry en général, mais Far cry 6 est est le jeu de la série
 ### [Spider-Man : into the spider-verse](https://www.youtube.com/watch?v=tg52up16eq0)
 
 
-Expliquer pourquoi vous avez choisi ce lien.
 
-### Lien 3 
-Expliquer pourquoi vous avez choisi ce lien.  
+### [Chaine youtube : Lord Bung](https://www.youtube.com/c/lordbung)
 
-### Lien 4 
-Expliquer pourquoi vous avez choisi ce lien. 
+C'est un chaine avec des animations 2d montrants des histoirs, et même parfoits des vidéos de musiques. Montrant des personnages interesant, histroire intrigante et animation de qualiter.
+
+
+### [Chaine youtube : Dead Sound](https://www.youtube.com/c/DeadSound))
+
+Une chaine youtube avec des animation 3d et 2d ensemble. Avec des histoires post apocalyptique, éducative (dinosaure) et autres. Créant des ambiance interessant me captivant a chaque écoute, avec des vidéos montrant le making off de ces projets.
 
 ### Lien 5 
 Expliquer pourquoi vous avez choisi ce lien. 
