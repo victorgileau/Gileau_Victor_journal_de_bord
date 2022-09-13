@@ -32,4 +32,4 @@ J'aimerair me retrouver avec un job stable et sufisant a mes besoin tout en pouv
 ### Projets
 **Expliquez un ou des projets que vous aimeriez faire :**
 
-J'aimererait faire un projet dans lequel je pourais utiliser mes dessins, sois un projection interactive, un jeu VR ou touts simplement mes dessins imprimers. Je n'ais pas beaucoup d'idée encore que pourrias surment men faire une fois mes capacité en multimédia serojn développer. 
+J'aimererai faire un projet dans lequel je pourais utiliser mes dessins, sois un projection interactive, un jeu VR ou touts simplement mes dessins imprimers. Je n'ais pas beaucoup d'idée encore que pourrias surment men faire une fois mes capacité en multimédia serojn développer. 
