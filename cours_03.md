@@ -14,7 +14,8 @@ Mes intérêts dans le domaine sont dans le visuels bien sur vu que je dessine b
 ### Emplois qui vous intéressent
 **Nommez deux emplois :**
 
-
+* Bédéiste : J'ai une grand passion pour le dessin cela devient doc un job de rêve.
+* Animateur 2d ou 3d : J'aimerai beaucoup faire de l'animation un jour en m'inspirant de film comme Spider-man into the spidervers, par exemple.
 
 ### Identification
 **Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi :** 
