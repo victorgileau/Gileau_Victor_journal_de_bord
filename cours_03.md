@@ -20,7 +20,7 @@ Mes intérêts dans le domaine sont dans le visuels bien sur vu que je dessine b
 ### Identification
 **Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi :** 
 
-Cab (Caroline Breault) une artiste que j'ai découvert cette été avec la lecteur de sa BD Utown qui avais un style particuler de dessin que j'ai adorrer contenant une histoire tout aussi captivante. C'est réalisation surtout sont livre représente très bien ce que je voudrai réaliser un jour, une BD avec mon style et mon histroire.
+Cab (Caroline Breault) une artiste que j'ai découvert cette été avec la lecteur de sa BD Utown qui avais un style particuler de dessin que j'ai adorrer contenant une histoire tout aussi captivante. C'est réalisation surtout sont livre représente très bien ce que je voudrai réaliser un jour, une BD avec mon style et mon histroire. Un gros plus elle est Québecoise.
 
 voici un lien a son portfolio : https://cabfolio.com
 
@@ -32,4 +32,4 @@ J'aimerair me retrouver avec un job stable et sufisant a mes besoin tout en pouv
 ### Projets
 **Expliquez un ou des projets que vous aimeriez faire :**
 
-
+J'aimererait faire un projet dans lequel je pourais utiliser mes dessins, sois un projection interactive, un jeu VR ou touts simplement mes dessins imprimers. Je n'ais pas beaucoup d'idée encore que pourrias surment men faire une fois mes capacité en multimédia serojn développer. 
