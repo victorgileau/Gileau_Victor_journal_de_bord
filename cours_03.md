@@ -27,6 +27,7 @@ voici un lien a son portfolio : https://cabfolio.com
 ### Dans 5 ans
 **Où vous voyez-vous dans 5 ans?:** 
 
+J'aimerair me retrouver avec un job stable et sufisant a mes besoin tout en pouvant pratiquer ma passion qui est le dessin.
 
 ### Projets
 **Expliquez un ou des projets que vous aimeriez faire :**
