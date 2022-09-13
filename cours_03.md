@@ -4,14 +4,16 @@
 ### Présentation
 **Parlez de vous :**
 
-Bonjour, je me nomme Victor Gileau
+Bonjour, je me nomme Victor Gileau,  je suis a ma 2e session au Cégep Montmorency. La session passé était en tremplin DEC. J'ai fini mon secondaire au PISC ou j'ai eu mon DEP en soutien informatique. J'aime beaucoup dessiner dans un style plus cartoon (exemples). 
 
 ### Intérêts dans le domaine
 **Parlez de vos intérêts en multimédia :**
 
+Mes intérêts dans le domaine sont dans le visuels bien sur vu que je dessine beaucoup. J'ai plusieurs idées de dessin pour les projets en illustration. J'aime aussi le desing apprendre ce qui va bien ensmenble, comment placer les élements et autres. Je suis pour tout ce qui est visuel en plus d'un petit interet pour le codage, voir comment tout fonctionne c'est intrigant.
 
 ### Emplois qui vous intéressent
 **Nommez deux emplois :**
+
 
 
 ### Identification
