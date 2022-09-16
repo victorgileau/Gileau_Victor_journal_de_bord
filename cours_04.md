@@ -14,7 +14,7 @@ Un illustrateur(rice) pourrait avoir comme tâche de traduire des textes d'auteu
 * Organisation (ex.: date limite)
 * Sens de l'adaptation
 
-Ce qui m'intéresse à ce métier serait le dessin bien sur vue que j'ai une passion pour le dessin. De plus, qui serait moins intéressant pour moi serait de devoir écouter à la demande du client, car je pense que la meilleur partie au dessin c'est de tout pouvoir dessiner et quand c'est enlever, ca devient bien moins amusant.
+Ce qui m'intéresse à ce métier serait le dessin bien sur vue que j'ai une passion pour le dessin. De plus, qui serait moins intéressant pour moi serait de devoir écouter à la demande du client, car je pense que la meilleure partie au dessin c'est de tout pouvoir dessiner et quand c'est enlever, ca devient bien moins amusant.
 
 
 ### Emploi 2 - Webmestre
