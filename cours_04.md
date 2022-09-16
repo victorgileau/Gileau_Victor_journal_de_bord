@@ -29,8 +29,17 @@ C’est un spécialiste d’effets visuels sois réaliser avec des logiciels d�
 Ce qui m’intéresse à ce métier c’est la possibilité de travailler sur de grand projet ce qui serait gratifiant. Un point négatif serait le travail d’équipe car ce n’est pas ma capacité la plus développer.
 
 
-### Emploi 3 - Programmeur web
-4 à 5 lignes 
+### Emploi 3 - Animateur(trice) en multimédia 2D et 3D :
+
+Ils font des films d’animations, des jeux vidéo et des publicités. Le 2D consiste a dessiner et animer et le 3D consiste a modeler les objets ou personnage et les animer. Ils vont soit travailler dans des compagnies ou chez eux si sous contrat tout dépend de l’employeur. Qualité nécessaire pour ce travail :
+
+* Sens de l’observation, pour reproduire les plus petits détails
+* Aisance informatique (maitrise des logiciels utiliser)
+* Sensibilité artistique (pour s’adapter à un style demander)
+* Sens de la communication (pouvoir bien communiquer avec un équipe ver la réalisation d’un projet)
+
+Ce qui m’intéresse à ce métier est la création l’action de créé une animation nouvelle et d’amener des personnages ou objets a la vie. Ce qui m’intéresse moins serait le travaille qui n’a pas pour but le divertissement comme l’architecture.
+
 
 ### Emploi 4 - Identification
 4 à 5 lignes
