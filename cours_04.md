@@ -17,8 +17,17 @@ Un illustrateur(rice) pourrait avoir comme tâche de traduire des textes d'auteu
 Ce qui m'intéresse à ce métier serait le dessin bien sur vue que j'ai une passion pour le dessin. De plus, qui serait moins intéressant pour moi serait de devoir écouter à la demande du client, car je pense que la meilleure partie au dessin c'est de tout pouvoir dessiner et quand c'est enlever, ca devient bien moins amusant.
 
 
-### Emploi 2 - Webmestre
-4 à 5 lignes
+### Emploi 2 - Artiste en effets visuels 2D/3D
+
+C’est un spécialiste d’effets visuels sois réaliser avec des logiciels d’animations ou d’infographie 3D. IL va créer des personnages, des environnements, des objet et effets spéciaux et lieux soit imaginaire ou réaliste. Il a plusieurs capacités, exemple animation 2D et 3D et les effets spéciaux. Leurs compétences pourraient être utiliser dans plusieurs projets soit dans le jeu vidéo, la vidéo (télé, cinéma et autres) et plus encore. Ils vont travailler à la compagnie qui les ont engagés ou chez eux s’il on la possibilité de faire du télétravail. Qualité pour pratiquer ce métier :
+
+* Créativité et capacité artistique qui son important à la création
+* Bonne maitrise des logiciels utiliser
+* Capable de faire du travail d’équipe pour des gros projets
+* Rigueur, organisation et minutie pour mieux réaliser les projets
+
+Ce qui m’intéresse à ce métier c’est la possibilité de travailler sur de grand projet ce qui serait gratifiant. Un point négatif serait le travail d’équipe car ce n’est pas ma capacité la plus développer.
+
 
 ### Emploi 3 - Programmeur web
 4 à 5 lignes 
