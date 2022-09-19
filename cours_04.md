@@ -41,8 +41,16 @@ Ils font des films d’animations, des jeux vidéo et des publicités. Le 2D con
 Ce qui m’intéresse à ce métier est la création l’action de créé une animation nouvelle et d’amener des personnages ou objets a la vie. Ce qui m’intéresse moins serait le travaille qui n’a pas pour but le divertissement comme l’architecture.
 
 
-### Emploi 4 - Identification
-4 à 5 lignes
+### Emploi 4 - Artiste en décors numériques ("matte painter") :
+
+Cet emploi consiste a créé des environnements soit photoréalisme ou styliser en 3D ou 2D souvent pour arriver à des concepts. Il faut aussi travailler avec l’équipes soit l’employeurs ou une équipe qui travail sur un projet pour s’assurer que l’environnement créé est équivalant à leurs idées. Avec cet empli il est possible de travailler de chez soit en télétravail ou a un bureau de la compagnie de l’employeur touts dépendant des demandes de l’employeur. Les qualités nécessaires :
+
+* Spécialisation de la création de décors
+* Esprit créatif
+* Connaissance dans les logiciels utiliser (soit 3D ou 2D)
+
+Ce qui m’intéresse dans ce métier est certainement la création de nouveau monde ce que j’aimerait faire un jour étant dessinateur. Ce que j’apprécie moins c’est le fait que je peux seulement créer des environnements et non des personnages ce qui n’est pas ce que je préfère.
+
 
 ### Emploi 5 - Identification
 4 à 5 lignes
