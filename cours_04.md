@@ -52,7 +52,7 @@ Cet emploi consiste a créé des environnements soit photoréalisme ou styliser 
 Ce qui m’intéresse dans ce métier est certainement la création de nouveau monde ce que j’aimerait faire un jour étant dessinateur. Ce que j’apprécie moins c’est le fait que je peux seulement créer des environnements et non des personnages ce qui n’est pas ce que je préfère.
 
 
-### Emploi 5 - Identification
+### Emploi 5 - Graphiste en multimédia :
 4 à 5 lignes
 
 
