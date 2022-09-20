@@ -53,6 +53,15 @@ Ce qui m’intéresse dans ce métier est certainement la création de nouveau m
 
 
 ### Emploi 5 - Graphiste en multimédia :
-4 à 5 lignes
+
+Graphiste en multimédia :
+Un graphiste en multimédia peu travailler sur une page web, des publicités, des vidéos et autres. Une grande partie de son travail est de rendre sur quoi il travail le plus attirant possible. Il utilise des logiciels comme Photoshop, ImageReady, Illustrator et autres logiciels similaire. Ils optimisent des sites, des logiciels ou des jeux vidéo pour les rendre plus beau et interactif visuellement. C’est qualité :
+
+* Créativité et sans artistiques pour crée des designs, personnages et autres.
+* Travail d’équipe et capaciter à communiquer ses idées.
+* Curieux pour de nouveaux style ou mode dans le logiciel, web et autres.
+
+Ce qui m’intéresse le plus serait la création de tout sorte par le dessin. Ce qui m’intéresse moins serait que les graphistes en multimédia sont souvent mener par des directeur(trice) artistique ce qui peut m’empêcher de créer ce que je veux.
+
 
 
