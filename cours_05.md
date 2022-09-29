@@ -10,7 +10,8 @@ Nommer deux points forts de votre présentation :
 ### Points à améliorer
 Nommer deux points à améliorer de votre présentation et expliquer comment vous allez les travailler pour les prochaines présentations :
 
-
+* Ma voix était trops basse, mais ca a toujour été un problème.
+* Faire plus attention a mon vocabulaire éviter les "pis c'est ca" et autres.
 
 ### Présentation préférée
 Quelle présentation avez-vous préféré et pourquoi? :
