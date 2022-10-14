@@ -12,23 +12,23 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 
 ### [Farcry 6](https://www.ubisoft.com/fr-ca/game/far-cry/far-cry-6)
 
-J'aime bien les Far cry en général, mais Far cry 6 est est le jeu de la séries qui a les plus beau visuels. Ce déroulant dans un cuba fictife, ou ce trouve des coucher de soliel magnifique, des forêts vivantes et une campagne interesantes. Avec un mode photo proposant des millions de possibiliter et un gameplay adictif. Un bonne adition a la séris de jeu Far cry. (pas la meilleur) 
+J'aime bien les Far cry en général, mais Far cry 6 est est le jeu de la série qui a les plus beaux visuels. Ce déroulant dans un cuba fictif, ou ce trouve des couchers de soleil magnifiques, des forêts vivantes et une campagne intéressante. Avec un mode photo proposant des millions de possibilités et un gameplay addictif. Une bonne adition a la série de jeu Far cry. (pas la meilleure)
 
 ### [Spider-Man : into the spider-verse](https://www.youtube.com/watch?v=tg52up16eq0)
 
-Mon film d'animation préférer ayant de la musique, de l'animation 2d et 3d et une histoire captivante. Le style du film ce démarquant des autres qui apporte les comics dans le films, créant une toute nouvelle facont de présenter un film.+
+Mon film d'animation préférée ayant de la musique, de l'animation 2D et 3D et une histoire captivante. Le style du film se démarquant des autres qui apporte les comics dans le film, créant une toute nouvelle façon de présenter un film.
 
 ### [Chaine youtube : Lord Bung](https://www.youtube.com/c/lordbung)
 
-C'est un chaine avec des animations 2d montrants des histoires, et même parfoits des vidéos de musiques. Montrant des personnages interesant, histroire intrigante et animation de qualiter.
+C'est une chaîne avec des animations 2D montrant des histoires, et même parfois des vidéos de musiques. Montrant des personnages intéressants, histoire intrigante et animation de qualité.
 
 
 ### [Chaine youtube : Dead Sound](https://www.youtube.com/c/DeadSound)
 
-Une chaine youtube avec des animation 3d et 2d ensemble. Avec des histoires post apocalyptique, éducative (dinosaure) et autres. Créant des ambiance interessant me captivant a chaque écoute, avec des vidéos montrant le making off de ces projets.
+Une chaine YouTube avec des animations 3d et 2d ensemble. Avec des histoires postapocalyptiques, éducatives (dinosaure) et autres. Créant des ambiances intéressantes me captivant à chaque écoute, avec des vidéos montrant le making of de ces projets.
 
 ### [Corridor Digital](https://www.corridordigital.com/)
 
-C'est un entreprise qui on commencer avec un chaine youtube ou il post des vidéos avec des effets visuels ou plus présisément des courts métrage en grand majoriter. Il font souvent des vidéos sur le fonctionnement. Il on créé un site web pour que le contenu puis continuer d'être poster si Youtube ne fonctionne plus. C'est un groupe d'artiste, producteur et autres qui créé du contenu.
+C'est une entreprise qui on commencer avec une chaine YouTube ou il post des vidéos avec des effets visuels ou plus précisément des courts métrages en grande majorité. Ils font souvent des vidéos sur le fonctionnement. Ils ont créé un site web pour que le contenu puis continuer d'être posté si YouTube ne fonctionne plus. C'est un groupe d'artiste, producteur et autres qui crée du contenu.
 
 
